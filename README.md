@@ -1,5 +1,5 @@
-- 👋 Hi, I’m MusicBudd
-- 👀 I’m interested in art!!
+- 👋 Hi, I’m Nesla
+- 👀 I’m interested in art!! mainly furry fandom 
 - 🌱 I’m currently learning IT 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me https://linktr.ee/neslaalexart
